@@ -1,2 +1,0 @@
-# sekcija.github.io
-sekcija
